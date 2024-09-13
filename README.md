@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Pursuing a BCA (Bachelor of Computer Applications) in India.<br>🌐 Exploring the Web3 space.<br>🤝 Open to collaborating on Web2 and Web3 projects.<br>😄 Pronouns: he/him.<br>🎵 Music lover.<br>🚀 Diving into hackathons with a willingness to learn.<br>📫 How to reach me: codwithlalith@gmail.com .
+🎓 Pursuing a BCA (Bachelor of Computer Applications) in India.<br>🌐 Exploring the Web3 space.<br>🤝 Open to collaborating on Web2 and Web3 projects.<br>😄 Pronouns: he/him.<br>🎵 Music lover.<br>🚀 Diving into hackathons with a willingness to learn.<br>📫 How to reach me: 'codwithlalith@gmail.com' .
 
 
 ## 🌐 Socials:
